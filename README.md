@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning java and C++
 - 💞️ I’m looking to collaborate on nothin rn as of 2023
 - 📫 How to reach me Becfest@protonmail.com
-- 📫 How to reach me Tropical becfest#1815 on discord!
+- 📫 How to reach me Troppy. on discord!
 
 <!---
 ✨ Blur-coder69/Blur-coder69 ✨
